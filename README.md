@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ms-Capgras
+- 👀 I’m interested in mathematics, computer graphics processing, and DnD
+- 🌱 I’m currently studying Maths, Further Maths, and Psychology A-Level
+- 📫 You can reach me via email: hawkbox2007@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I loathe bananas with a burning passion
